@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @1Blackthunder
+- 👋 Hi, I’m @Blackthunderr
 - 👀 I’m interested in Programming, sport like mountainbiking and weight training and I also like pc building and gaming.
 - 🌱 I’m currently learning Java, Sql, html, css
 - 💞️ I’m looking to collaborate on @WechselstromMC
-- 📫 How to reach me: 1Blackthunder@KampfläuferMc.de
+- 📫 How to reach me: Blackthunderr@KampfläuferMc.de
