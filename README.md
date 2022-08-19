@@ -1,2 +1,2 @@
-- Hi, I’m @Blackthunderr
+- I am from Earth
 - Land: Kaufland
